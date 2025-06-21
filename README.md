@@ -5,3 +5,5 @@ Jollof Rice Image Cred: https://www.allrecipes.com/thmb/EJn9SMTzr4QRkdiWdi3ZBgC0
 
 Fufu Image Cred: https://www.culturesofwestafrica.com/wp-content/uploads/2024/07/Fufu-A-Staple-of-African-Cuisine-Its-Cultural-Importance-.jpg
 
+Puff-Puff Image Cred: https://foodpluswords.com/wp-content/uploads/2022/07/How-to-make-Nigerian-puff-puff-10-720x720.jpg
+
